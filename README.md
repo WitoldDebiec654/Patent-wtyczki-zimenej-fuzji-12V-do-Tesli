@@ -1,0 +1,1 @@
+# Patent-wtyczki-zimenej-fuzji-12V-do-Tesli
